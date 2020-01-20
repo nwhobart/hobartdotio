@@ -1,3 +1,3 @@
-## welcome to hobart dot io
+## welcome
 
 Holy cow did the Packers get killed in NFC Championship game...
